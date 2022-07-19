@@ -1,18 +1,20 @@
 推荐下载小草客户端，永不迷路。
 
-前往GitHub下载安卓客户端
+前往GitHub下载安卓客户端https://github.com/yuuwill/1024app-android/releases
 
-前往GitHub下载PC地址发布器
+前往GitHub下载PC地址发布器https://github.com/yuuwill/1024app-uwp/releases
 
 
 
 访问本站：
 
-最新地址一：cl.1759x.xyz
+最新地址一：[cl.1759x.xyz](https://cl.1759x.xyz/index.php?u=263181&ext=bbd03)
 
-最新地址二：cl.1759y.xyz
+最新地址二：[cl.1759y.xyz](https://cl.1759y.xyz/index.php?u=263181&ext=bbd03)
 
-最新地址三：cl.1759z.xyz
+最新地址三：[cl.1759z.xyz](https://cl.1759z.xyz/index.php?u=263181&ext=bbd03)
 
 永久域名：www.t66y.com
-https://t66y.com/index.php?u=263181&ext=bbd03
+
+发布页http://www.gfqzkep.com/
+
