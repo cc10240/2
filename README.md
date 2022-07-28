@@ -8,11 +8,11 @@
 
 访问本站：
 
-最新地址一：[cl.1759x.xyz](https://cl.1759x.xyz/index.php?u=263181&ext=bbd03)
+最新地址一：[一](https://cl.7867x.xyz/index.php?u=263181&ext=bbd03)
 
-最新地址二：[cl.1759y.xyz](https://cl.1759y.xyz/index.php?u=263181&ext=bbd03)
+最新地址二：[二](https://cl.7867y.xyz/index.php?u=263181&ext=bbd03)
 
-最新地址三：[cl.1759z.xyz](https://cl.1759z.xyz/index.php?u=263181&ext=bbd03)
+最新地址三：[三](https://cl.7867z.xyz/index.php?u=263181&ext=bbd03)
 
 或发送任意内容邮件自动回复最新地址，易记邮箱：cl地址获取6个汉字的拼音缩写@gmail（一般，有时收不到）
 cldzhq@gmail.com
